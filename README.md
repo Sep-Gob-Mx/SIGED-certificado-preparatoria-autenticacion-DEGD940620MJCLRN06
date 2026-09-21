@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DEGD940620MJCLRN06
+DEGD940620MJCLRN06
